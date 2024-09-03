@@ -1,4 +1,4 @@
-![image](https://imgur.com/a/HQlYSCX)
+![image](https://imgur.com/ssGdE9S.png)
 
 - 👋 Hi, I’m @LumiByte
 - 👀 I’m interested in ...
